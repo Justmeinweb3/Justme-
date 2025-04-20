@@ -1,2 +1,3 @@
 # Justme-
-Guru in community management &amp; managing partnership 🤝
+Marketing specialist 🤝
+Interacting DeFi
